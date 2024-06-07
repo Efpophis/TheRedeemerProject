@@ -6,7 +6,7 @@ These are hosted on Google Drive - so don't expect the downloads to be fast.
 
 NOTE:  Google Drive will likely complain that it can't virus scan the file because it's too big. Click the Download Anyway button, knowing that I have produced and scanned these files myself and trust that they are virus-free.
 
-If you want to stream the music, check out my Bandcamp page, linked below the discography.
+If you want to stream the music, check out my [Bandcamp](https://theredeemerproject.bandcamp.com) page.
 
 
 ## Discography:
