@@ -1,22 +1,38 @@
 # The Redeemer Project
 
-Here is where you can download all my published music, free and anonymously. They are hosted on GitHub, and there may be bandwidth limitations, etc. Don't expect it to be a fast download.
+Here is where you can download all my published music, free and anonymously.
 
-My preferred distribution point is on [BandCamp](https://theredeemerproject.bandcamp.com). This site is here for people who don't want to sign up for an account there.
+These are hosted on Google Drive - so don't expect the downloads to be fast.
 
-Discography:
+If you want to stream the music, check out my Bandcamp page, linked below the discography.
 
-![Death and Resurrection cover art](images/DR/cover.jpg)
 
-Death and Resurrection - available in:
-  * [MP3](downloads/death_and_resurrection_MP3.zip) - High Quality 320kbit MP3 format (most compatible)
-  * [AAC](downloads/death_and_resurrection_AAC.zip) - Apple m4a aac files (smallest)
-  * [FLAC](downloads/death_and_resurrection_FLAC.zip) - Lossless for audiophiles (largest file)
- 
-![Yahweh Our Light cover art](images/YOL/cover.jpg)
+## Discography:
 
-Yahweh Our Light - available in:
-  * [MP3](downloads/yahweh_our_light_MP3.zip) - High Quality 320kbit MP3 format (most compatible)
-  * [AAC](downloads/yahweh_our_light_AAC.zip) - Apple m4a aac files (smallest)
-  * [FLAC](downloads/yahweh_our_light_FLAC.zip) - Lossless for audiophiles (largest file)
+### Death and Resurrection (Released April, 2024)
 
+<img src="images/DR/cover.jpg" width="30%" height="30%">
+
+Available in:
+  * [MP3](https://drive.google.com/file/d/1NIDUbxCC174t_MJppKlGOUf8tBywFNQ6/view?usp=drive_link) - High Quality 320kbit MP3 format (most compatible)
+  * [AAC](https://drive.google.com/file/d/1QxPkaxqyUOFsKWfv4D9qxJvA_NMJEJCg/view?usp=drive_link) - Apple m4a aac files (smallest)
+  * [FLAC](https://drive.google.com/file/d/1Ydt6YEuj0SjwoCystHKoLvvKzVmREpgi/view?usp=drive_link) - Lossless for audiophiles (largest file)
+---
+### Yahweh Our Light (Released June 2024)
+
+<img src="images/YOL/cover.jpg" width="30%" height="30%">
+
+Available in:
+  * [MP3](https://drive.google.com/file/d/1TbjAngWKZ66-W_YZ2Bmqh6DYQQZKQzU3/view?usp=drive_link) - High Quality 320kbit MP3 format (most compatible)
+  * [AAC](https://drive.google.com/file/d/1z5mg7j-ZQm_VTUPf65Nsrq2JZTYZ_cNx/view?usp=drive_link) - Apple m4a aac files (smallest)
+  * [FLAC](https://drive.google.com/file/d/1lKn2ovRRGN3dCu5q77DQ0yUQni_4eCLv/view?usp=drive_link) - Lossless for audiophiles (largest file)
+
+
+## Other Links:
+
+To find out more about The Redeemer Project, visit the following:
+
+* [BandCamp](https://theredeemerproject.bandcamp.com) - Listen free, download, and support me if you feel so inclined.
+* [Facebook](https://www.facebook.com/profile.php?id=61558951555423) - updates and announcements
+* [YouTube](https://youtube.com/@TheRedeemerProjectMetal/videos) - basic no-frills videos posted when I get around to making them.
+* ["Band" bio](https://blog.efpophis.net/p/the-redeemer-project.html) and story
