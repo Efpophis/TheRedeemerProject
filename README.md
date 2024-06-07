@@ -14,18 +14,18 @@ If you want to stream the music, check out my Bandcamp page, linked below the di
 <img src="images/DR/cover.jpg" width="30%" height="30%">
 
 Available in:
-  * [MP3](https://drive.google.com/file/d/1NIDUbxCC174t_MJppKlGOUf8tBywFNQ6/view?usp=drive_link) - High Quality 320kbit MP3 format (most compatible)
-  * [AAC](https://drive.google.com/file/d/1QxPkaxqyUOFsKWfv4D9qxJvA_NMJEJCg/view?usp=drive_link) - Apple m4a aac files (smallest)
-  * [FLAC](https://drive.google.com/file/d/1Ydt6YEuj0SjwoCystHKoLvvKzVmREpgi/view?usp=drive_link) - Lossless for audiophiles (largest file)
+  * [MP3](https://drive.google.com/uc?export=download&id=1NIDUbxCC174t_MJppKlGOUf8tBywFNQ6) - High Quality 320kbit MP3 format (most compatible)
+  * [AAC](https://drive.google.com/uc?export=download&id=1QxPkaxqyUOFsKWfv4D9qxJvA_NMJEJCg) - Apple m4a aac files (smallest)
+  * [FLAC](https://drive.google.com/uc?export=download&id=1Ydt6YEuj0SjwoCystHKoLvvKzVmREpgi) - Lossless for audiophiles (largest file)
 ---
 ### Yahweh Our Light (Released June 2024)
 
 <img src="images/YOL/cover.jpg" width="30%" height="30%">
 
 Available in:
-  * [MP3](https://drive.google.com/file/d/1TbjAngWKZ66-W_YZ2Bmqh6DYQQZKQzU3/view?usp=drive_link) - High Quality 320kbit MP3 format (most compatible)
-  * [AAC](https://drive.google.com/file/d/1z5mg7j-ZQm_VTUPf65Nsrq2JZTYZ_cNx/view?usp=drive_link) - Apple m4a aac files (smallest)
-  * [FLAC](https://drive.google.com/file/d/1lKn2ovRRGN3dCu5q77DQ0yUQni_4eCLv/view?usp=drive_link) - Lossless for audiophiles (largest file)
+  * [MP3](https://drive.google.com/uc?export=download&id=1TbjAngWKZ66-W_YZ2Bmqh6DYQQZKQzU3) - High Quality 320kbit MP3 format (most compatible)
+  * [AAC](https://drive.google.com/uc?export=download&id=1z5mg7j-ZQm_VTUPf65Nsrq2JZTYZ_cNx) - Apple m4a aac files (smallest)
+  * [FLAC](https://drive.google.com/uc?export=download&id=1lKn2ovRRGN3dCu5q77DQ0yUQni_4eCLv) - Lossless for audiophiles (largest file)
 
 
 ## Other Links:
