@@ -19,7 +19,9 @@ Available in:
   * [MP3](https://drive.google.com/uc?export=download&id=1NIDUbxCC174t_MJppKlGOUf8tBywFNQ6) - High Quality 320kbit MP3 format (most compatible)
   * [AAC](https://drive.google.com/uc?export=download&id=1QxPkaxqyUOFsKWfv4D9qxJvA_NMJEJCg) - Apple m4a aac files (smallest)
   * [FLAC](https://drive.google.com/uc?export=download&id=1Ydt6YEuj0SjwoCystHKoLvvKzVmREpgi) - Lossless for audiophiles (largest file)
+
 ---
+
 ### Yahweh Our Light (Released June 2024)
 
 <img src="images/YOL/cover.jpg" width="30%" height="30%">
