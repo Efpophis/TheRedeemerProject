@@ -15,6 +15,8 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 
 <img src="images/DR/cover.jpg" width="30%" height="30%">
 
+(C) Copyright 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
+
 Available in:
   * [MP3](https://drive.google.com/uc?export=download&id=1NIDUbxCC174t_MJppKlGOUf8tBywFNQ6) - High Quality 320kbit MP3 format (most compatible)
   * [AAC](https://drive.google.com/uc?export=download&id=1QxPkaxqyUOFsKWfv4D9qxJvA_NMJEJCg) - Apple m4a aac files (smallest)
@@ -25,6 +27,8 @@ Available in:
 ### Yahweh Our Light (Released June 2024)
 
 <img src="images/YOL/cover.jpg" width="30%" height="30%">
+
+(C) Copyright 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
 
 Available in:
   * [MP3](https://drive.google.com/uc?export=download&id=1TbjAngWKZ66-W_YZ2Bmqh6DYQQZKQzU3) - High Quality 320kbit MP3 format (most compatible)
