@@ -66,11 +66,29 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 
 (C) 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
 
+### Eliyahu (Released August, 2024)
+
+<img src="images/EL/cover.jpg" width="30%" height="30%" align=left>
+
+<BR><BR><BR>
+&nbsp;&nbsp;&nbsp;Available in:
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1IFcQ7aEoJgpihXMQ8y2aQjf1xUUzUXa4) - High Quality 320kbit MP3 format (most compatible)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=136o1ZjPo0V8qDBZmajOkKLBkEdWplaBU) - Apple m4a aac files (smallest)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1QD63eBlp8AXOVvKjOyNqBtPArW1sYapn) - Lossless for audiophiles (largest file)
+
+<br clear=all>
+
+(C) 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
+
+
 ## Other Links:
 
 To find out more about The Redeemer Project, visit the following:
 
 * [BandCamp](https://theredeemerproject.bandcamp.com) - Listen free, download, and support me if you feel so inclined.
-* [Facebook](https://www.facebook.com/profile.php?id=61558951555423) - updates and announcements
+* [Facebook](https://www.facebook.com/profile.php?id=61558951555423) - updates and announcements.
 * [YouTube](https://youtube.com/@TheRedeemerProjectMetal/videos) - basic no-frills videos posted when I get around to making them.
-* ["Band" bio](https://blog.efpophis.net/p/the-redeemer-project.html) and story
+* ["Band" bio](https://blog.efpophis.net/p/the-redeemer-project.html) and story.
