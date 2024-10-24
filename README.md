@@ -27,7 +27,7 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 
 <br clear=all>
 
-(C) Copyright 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
+Death and Resurrection © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
 
 
 ### Yahweh Our Light (Released June 2024)
@@ -46,7 +46,7 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 
 <br clear=all>
 
-(C) Copyright 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
+Yahweh Our Light © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
 
 ### Americana [single] (Released July 4, 2024)
 
@@ -64,7 +64,7 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 
 <br clear=all>
 
-(C) 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
+Americana © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
 
 ### Eliyahu (Released August, 2024)
 
@@ -81,7 +81,25 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 
 <br clear=all>
 
-(C) 2024, [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/3.0/)
+Eliyahu © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
+
+### Requiem Ex Mortis (Released October 31, 2024)
+
+<img src="images/REM/cover.jpg" width="30%" height="30%" align=left>
+
+<BR><BR><BR>
+&nbsp;&nbsp;&nbsp;Available in:
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=148N0jJjcfSgmPozBRAU1HKwxh3h_ZV-4) - High Quality 320kbit MP3 format (most compatible)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1GH44bZaQKSlr9w5NzhZ8CJkMShE_0Ed8) - Apple m4a aac files (smallest)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1NLeW6gakMOPQMjcEC4aP65vilWFaOPQy) - Lossless for audiophiles (largest file)
+
+<br clear=all>
+
+Requiem Ex Mortis © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
+
 
 
 ## Other Links:
