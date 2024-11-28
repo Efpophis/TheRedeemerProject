@@ -100,7 +100,22 @@ Eliyahu © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some 
 
 Requiem Ex Mortis © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
 
+### God With Us (Released November 29, 2024)
 
+<img src="images/GWU/cover.jpg" width="30%" height="30%" align=left>
+
+<BR><BR><BR>
+&nbsp;&nbsp;&nbsp;Available in:
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1-HmvjFK_O6qcWtd51ywWnfWMt9EH3u-S) - High Quality 320kbit MP3 format (most compatible)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1-4-Vd6ZxjK0kudguOtfF231irZ9is-bn) - Apple m4a aac files (smallest)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1-3vcH4k0KIzVqyiZxP-r-7IPPXbpiP1R) - Lossless for audiophiles (largest file)
+
+<br clear=all>
+
+God With Us © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
 
 ## Other Links:
 
