@@ -8,8 +8,10 @@ NOTE:  Google Drive will likely complain that it can't virus scan the file becau
 
 If you want to stream the music, check out my [Bandcamp](https://theredeemerproject.bandcamp.com) page.
 
+If you want to skip the whole thing and just download everything, click one of the file format links next to "Discography" below.
 
-## Discography:
+
+## Discography: [\[MP3\]](https://drive.google.com/uc?export=download&id=1NTtx_OzQfb0LPqEDe2olD4YoZnWEXXCi) [\[AAC\]](https://drive.google.com/uc?export=download&id=1NTmhk2n3ACk3cBQc5LRhnEq31H-ILlQ2) [\[FLAC\]](https://drive.google.com/uc?export=download&id=1NXIAzApDjilUsncL7_8ONHJ0FR7y9IEE)
 
 ### Death and Resurrection (Released April, 2024)
 
