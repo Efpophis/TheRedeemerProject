@@ -119,6 +119,24 @@ Requiem Ex Mortis © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 
 
 God With Us © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
 
+### Seven (Released March 14, 2025)
+ 
+<img src="images/seven/cover.jpg" width="30%" height="30%" align=left>
+
+<BR><BR><BR>
+&nbsp;&nbsp;&nbsp;Available in:
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1cKd6ddII7xd50kOv_WgKs3TRUjrQnJBB) - High Quality 320kbit MP3 format (most compatible)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1cKK4IGnzHCW7vihjiRpwy_tDm7yb5oRQ) - Apple m4a aac files (smallest)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1cRe8ASAj3knGYkwcV9fthBn2HxXmbslm) - Lossless for audiophiles (largest file)
+
+<br clear=all>
+
+Seven © 2025 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some rights reserved](https://creativecommons.org/licenses/by-nc-nd/4.0/)
+
+
 ## Other Links:
 
 To find out more about The Redeemer Project, visit the following:
