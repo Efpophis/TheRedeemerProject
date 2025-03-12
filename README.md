@@ -2,16 +2,14 @@
 
 Here is where you can download all my published music, free and anonymously.
 
-These are hosted on Google Drive - so don't expect the downloads to be fast.
-
-NOTE:  Google Drive will likely complain that it can't virus scan the file because it's too big. Click the Download Anyway button, knowing that I have produced and scanned these files myself and trust that they are virus-free.
+These are hosted on Mega.nz - so don't expect the downloads to be fast.
 
 If you want to stream the music, check out my [Bandcamp](https://theredeemerproject.bandcamp.com) page.
 
 If you want to skip the whole thing and just download everything, click one of the file format links next to "Discography" below.
 
 
-## Discography: [\[MP3\]](https://drive.google.com/uc?export=download&id=1NTtx_OzQfb0LPqEDe2olD4YoZnWEXXCi) [\[AAC\]](https://drive.google.com/uc?export=download&id=1NTmhk2n3ACk3cBQc5LRhnEq31H-ILlQ2) [\[FLAC\]](https://drive.google.com/uc?export=download&id=1NXIAzApDjilUsncL7_8ONHJ0FR7y9IEE)
+## Discography: [\[MP3\]](https://mega.nz/file/4FYlHZRC#71aPPD32SzTmkS0JxBbULjwYGFo9oWNy0XANsC5c_ag) [\[AAC\]](https://mega.nz/file/dYA3mLgJ#VO9EohPDHaIaUlkG3hZoq6JY3KFdbTSWQx6JgiCE8kY) [\[FLAC\]](https://mega.nz/file/cZ51BARY#ZiL6hdyvAlo7MaGssXSVuCFIyInfAch4omViViNpGxY)
 
 ### Death and Resurrection (Released April, 2024)
 
@@ -21,11 +19,11 @@ If you want to skip the whole thing and just download everything, click one of t
 
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1NIDUbxCC174t_MJppKlGOUf8tBywFNQ6) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/xYRCyZTY#3afJvylAsGdh4MMcQWIGJVsy2lWfRhmkvX8fOSh_cRs) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1QxPkaxqyUOFsKWfv4D9qxJvA_NMJEJCg) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/BFJVVBTC#uJnibT6LS5In65nPrimCrQm44EEXn98fdu8P57K7Dyk) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1Ydt6YEuj0SjwoCystHKoLvvKzVmREpgi) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/xIhnHLzK#HTICqlmw2jdrvVLnP9LP2JVvG6lhQq2LV8kgiqc93SQ) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -40,11 +38,11 @@ Death and Resurrection © 2024 by The Redeemer Project is licensed under CC BY-N
 
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1TbjAngWKZ66-W_YZ2Bmqh6DYQQZKQzU3) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/lRJmBQYT#r6I6mftl1d5RTMZznV6kg6UcIsuGnS6sPRwHJds2Z54) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1z5mg7j-ZQm_VTUPf65Nsrq2JZTYZ_cNx) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/UMp22IRQ#eqItwgwYGzzZGGw6_wFcg8VKt3_ZHbhajRlVoZASjZU) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1lKn2ovRRGN3dCu5q77DQ0yUQni_4eCLv) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/EZwziJ7K#J2tAyn-F-HkcxZnWcfA34DFe9X0GHip79YUEtYD2poA) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -58,11 +56,11 @@ Yahweh Our Light © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4
 
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1OBII3h6rR5Cj76tTN46rDI5pjekZrYOP) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/dQYjWLDC#aItK4eYxt_mCCJUrcNRAe5eBFdYmpbueRqTvquL8aSo) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=17ScDXfFsJhPKrIEKS_JoxShNUnfO0_pD) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/5V5yCYqZ#xUWG6DoFTRVE2LryH4x1eZ6R7n2zVAa_MtJMTL6dttc) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=18U_T6MfryOgWyANNuxPKNSYAuamG-CqP) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/MdI3jQZR#3XXQKuojs4vhoHUeoFcu5B2qKU4GR3Yq4_6HEycOS_U) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -75,11 +73,11 @@ Americana © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Som
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1IFcQ7aEoJgpihXMQ8y2aQjf1xUUzUXa4) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/8cxDza6A#3SUDhBH_CJaoSH7O_jmyEH8VVbKAIBIFl2tfhkbPADc) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=136o1ZjPo0V8qDBZmajOkKLBkEdWplaBU) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/cIIj1ZiL#fTfdawbiww09E4o1U4IwAgC0V9IvOeunVrib1fJ0iXs) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1QD63eBlp8AXOVvKjOyNqBtPArW1sYapn) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/oVBQDCpI#_hRROkUJ0pER7U3zeffQTKDYTElZCdyL0WfKJNtOzCs) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -92,11 +90,11 @@ Eliyahu © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=148N0jJjcfSgmPozBRAU1HKwxh3h_ZV-4) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/5ApghLSQ#X_KCIr_YLGmKCelaRlShnLF4KQfkqqsPvKqPU2jyqIU) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1GH44bZaQKSlr9w5NzhZ8CJkMShE_0Ed8) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/1UYVSCpZ#29mbr_othUBS5THFN4aB2TqkkWhTFg10Qlzst5BSGXc) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1NLeW6gakMOPQMjcEC4aP65vilWFaOPQy) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/QZgRgIhK#bViPXlBzqiUbYNN-WsruFISvtCCHwrM_Zpu8sWghDxs) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -109,11 +107,11 @@ Requiem Ex Mortis © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1-HmvjFK_O6qcWtd51ywWnfWMt9EH3u-S) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/gFRiwJza#mKumbXyUGDCJvGPTt7n4UnrCxtSS_cLhZTC7ytq5kJ4) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1-4-Vd6ZxjK0kudguOtfF231irZ9is-bn) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/dZxnFDAb#DDyfkOBCW7OLwcz1TrRE4zdcbotOjtPjGBgZ0rlO1Xw) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1-3vcH4k0KIzVqyiZxP-r-7IPPXbpiP1R) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/sUxXnSSQ#V88h65L-JIVOlmwRmeohuaQ3hvO3RwzsAmP4IAvOXSg) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -126,11 +124,11 @@ God With Us © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [S
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://drive.google.com/uc?export=download&id=1cKd6ddII7xd50kOv_WgKs3TRUjrQnJBB) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/kIRyDTKL#2eNU560DAhHhpCRnGqyzwttLi_WQaojFWWz4dyY2PdY) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://drive.google.com/uc?export=download&id=1cKK4IGnzHCW7vihjiRpwy_tDm7yb5oRQ) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/dBgCSKDS#Z8xPr-zIEpS0b4jW5_qBNoUd6cZFpXPfpUaG-pYZslI) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://drive.google.com/uc?export=download&id=1cRe8ASAj3knGYkwcV9fthBn2HxXmbslm) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/lYgnBIrK#cFaYpznJjuMkJL7KboZVlcXgHgpcLg3cAdg0YTs2Zhw) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
