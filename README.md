@@ -13,7 +13,7 @@ If you want to skip the whole thing and just download everything, click one of t
 
 ### Death and Resurrection (Released April, 2024)
 
-<img src="images/DR/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/DR/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/death-and-resurrection)
 
 <BR><BR><BR>
 
@@ -32,7 +32,7 @@ Death and Resurrection © 2024 by The Redeemer Project is licensed under CC BY-N
 
 ### Yahweh Our Light (Released June 2024)
 
-<img src="images/YOL/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/YOL/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/yahweh-our-light)
 
 <BR><BR><BR>
 
@@ -50,7 +50,7 @@ Yahweh Our Light © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4
 
 ### Americana [single] (Released July 4, 2024)
 
-<img src="images/AM/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/AM/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/americana)
 
 <BR><BR><BR>
 
@@ -68,7 +68,7 @@ Americana © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Som
 
 ### Eliyahu (Released August, 2024)
 
-<img src="images/EL/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/EL/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/eliyahu)
 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
@@ -85,7 +85,7 @@ Eliyahu © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some 
 
 ### Requiem Ex Mortis (Released October 31, 2024)
 
-<img src="images/REM/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/REM/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/requiem-ex-mortis)
 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
@@ -102,7 +102,7 @@ Requiem Ex Mortis © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 
 
 ### God With Us (Released November 29, 2024)
 
-<img src="images/GWU/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/GWU/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/god-with-us)
 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
@@ -119,7 +119,7 @@ God With Us © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [S
 
 ### Seven (Released March 14, 2025)
  
-<img src="images/seven/cover.jpg" width="30%" height="30%" align=left>
+[<img src="images/seven/cover.jpg" width="30%" height="30%" align=left>](https://theredeemerproject.bandcamp.com/album/seven)
 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
