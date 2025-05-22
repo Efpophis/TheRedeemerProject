@@ -9,7 +9,7 @@ If you want to stream the music, check out my [Bandcamp](https://theredeemerproj
 If you want to skip the whole thing and just download everything, click one of the file format links next to "Discography" below.
 
 
-## Discography: [\[MP3\]](https://mega.nz/file/4FYlHZRC#71aPPD32SzTmkS0JxBbULjwYGFo9oWNy0XANsC5c_ag) [\[AAC\]](https://mega.nz/file/dYA3mLgJ#VO9EohPDHaIaUlkG3hZoq6JY3KFdbTSWQx6JgiCE8kY) [\[FLAC\]](https://mega.nz/file/cZ51BARY#ZiL6hdyvAlo7MaGssXSVuCFIyInfAch4omViViNpGxY)
+## Discography: [\[MP3\]](https://mega.nz/file/QRIUHCza#LOme7NvnyNRQdTxa694pOSL7EH12yAVuX25hVUT-u0E) [\[AAC\]](https://mega.nz/file/IAhjFa5Y#KIOBs5DpnT31XpZdV-V4yuhFYi6LskFHOHEH_sOug_M) [\[FLAC\]](https://mega.nz/file/9UxSQQpQ#MyqfB-nzvx7lLjO5rDjOhr0c6NowvXUYak7U16Q1Tkg)
 
 ### Death and Resurrection (Released April, 2024)
 
@@ -19,11 +19,11 @@ If you want to skip the whole thing and just download everything, click one of t
 
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/xYRCyZTY#3afJvylAsGdh4MMcQWIGJVsy2lWfRhmkvX8fOSh_cRs) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/4AZlySZZ#Je4aPxZai8dKsS_cDrwPRMwXuJ_37b3OA76ZL_sdjss) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/BFJVVBTC#uJnibT6LS5In65nPrimCrQm44EEXn98fdu8P57K7Dyk) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/EQhkCBBQ#LoNQXmp6nj0mECG2U7h1PGsg2YXSzgFUo3TxF7QG0xI) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/xIhnHLzK#HTICqlmw2jdrvVLnP9LP2JVvG6lhQq2LV8kgiqc93SQ) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/ZdhinSKD#AhLDN_FaxFCB2hphrl3MRWh9MDaOEtFAoMm6ykX63j0) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -38,11 +38,11 @@ Death and Resurrection © 2024 by The Redeemer Project is licensed under CC BY-N
 
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/lRJmBQYT#r6I6mftl1d5RTMZznV6kg6UcIsuGnS6sPRwHJds2Z54) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/IFBXxZyA#idpELQZtG7dkhrR4z7CBgBymUgfl1KDRHKJfTnaujIM) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/UMp22IRQ#eqItwgwYGzzZGGw6_wFcg8VKt3_ZHbhajRlVoZASjZU) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/FF4wgSBC#Ih5rB043Ly1peo3KQ6AmbjlmZ_4_kCXvRrLPOav4h2E) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/EZwziJ7K#J2tAyn-F-HkcxZnWcfA34DFe9X0GHip79YUEtYD2poA) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/BI4kWRRY#iyhlcYF77kuF5Z3jdVXz5laMFIuvrZYxWBfvOcIJcxc) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -56,11 +56,11 @@ Yahweh Our Light © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4
 
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/dQYjWLDC#aItK4eYxt_mCCJUrcNRAe5eBFdYmpbueRqTvquL8aSo) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/oJBy1YBQ#3mh25betr9Eet2qm24Bu3zR5fnDDexpEYkfReuJNF2o) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/5V5yCYqZ#xUWG6DoFTRVE2LryH4x1eZ6R7n2zVAa_MtJMTL6dttc) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/1dI2ABTR#upRhY1ycU6p662uHvf3wXwtovfvQnE0nKY4Et79z1vs) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/MdI3jQZR#3XXQKuojs4vhoHUeoFcu5B2qKU4GR3Yq4_6HEycOS_U) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/FNAS2b7R#yJBmpRdVsNaRsGKAOlEfzpuLr5ezUXqkJtqdMzFbGow) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -73,11 +73,11 @@ Americana © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Som
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/8cxDza6A#3SUDhBH_CJaoSH7O_jmyEH8VVbKAIBIFl2tfhkbPADc) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/ZAo3GLhD#ldcL75Kr468CUu553nUdxjmMdDjkFTL4hiTVfxf6ObM) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/cIIj1ZiL#fTfdawbiww09E4o1U4IwAgC0V9IvOeunVrib1fJ0iXs) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/xdAG3JoR#OzZMbJ8h6J4LWGYOaiqG2HhY0sw6c4ORgoyiIRd3J1g) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/oVBQDCpI#_hRROkUJ0pER7U3zeffQTKDYTElZCdyL0WfKJNtOzCs) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/IN40nQTJ#Rmwzz36Igl_ufNl6YCPVwefBMWYngMQA6SYnwsUBxp4) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -90,11 +90,11 @@ Eliyahu © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [Some 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/5ApghLSQ#X_KCIr_YLGmKCelaRlShnLF4KQfkqqsPvKqPU2jyqIU) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/xUgyFLxD#c2W0skvtiseP0VN-T6PRGkvA2zdv6XKjqQJpMFhBeAo) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/1UYVSCpZ#29mbr_othUBS5THFN4aB2TqkkWhTFg10Qlzst5BSGXc) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/IEYCibDK#pz8ee8OSuCxYp4civPGRBYGKJT3Rg-HmI8uzL9F4Un8) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/QZgRgIhK#bViPXlBzqiUbYNN-WsruFISvtCCHwrM_Zpu8sWghDxs) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/1BwgUTwR#y8LX6RZlJs1vXuHiMQ1b6pdXPOzK5QEZV76PLqGZtBA) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -107,11 +107,11 @@ Requiem Ex Mortis © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/gFRiwJza#mKumbXyUGDCJvGPTt7n4UnrCxtSS_cLhZTC7ytq5kJ4) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/EQhymACa#yjtmUzvD4pe6Kb6pC-s4olHNsbwvA_QjGVWOBoCVRSw) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/dZxnFDAb#DDyfkOBCW7OLwcz1TrRE4zdcbotOjtPjGBgZ0rlO1Xw) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/YAhEyBQQ#uojmuyI3Ux0AUEFlTiU5NQDQ0DZurXsB2ruzi46NYfk) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/sUxXnSSQ#V88h65L-JIVOlmwRmeohuaQ3hvO3RwzsAmP4IAvOXSg) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/JIZhkZ6Z#XzfOq5-qkvBIXJKpiUc_cXwuvuC1_-4fHD6UWH2hWvk) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
@@ -124,11 +124,11 @@ God With Us © 2024 by The Redeemer Project is licensed under CC BY-NC-ND 4.0 [S
 <BR><BR><BR>
 &nbsp;&nbsp;&nbsp;Available in:
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/kIRyDTKL#2eNU560DAhHhpCRnGqyzwttLi_WQaojFWWz4dyY2PdY) - High Quality 320kbit MP3 format (most compatible)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[MP3](https://mega.nz/file/FMZEWRCC#OMtju1RF91hgCNLDC3lAMp3eHtUx0IfB12kAUwSDkqc) - High Quality 320kbit MP3 format (most compatible)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/dBgCSKDS#Z8xPr-zIEpS0b4jW5_qBNoUd6cZFpXPfpUaG-pYZslI) - Apple m4a aac files (smallest)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[AAC](https://mega.nz/file/4MIkTQoa#ot9vvsfrl0EFVVybIoag3F1cD2y8iriqIGnWB-FrgYQ) - Apple m4a aac files (smallest)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/lYgnBIrK#cFaYpznJjuMkJL7KboZVlcXgHgpcLg3cAdg0YTs2Zhw) - Lossless for audiophiles (largest file)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[FLAC](https://mega.nz/file/lRxRma6I#ELukaV_dR4Vz__dVDZyOQAxl3M33Sgj53Lgy6ZDo4bE) - Lossless for audiophiles (largest file)
 
 <br clear=all>
 
